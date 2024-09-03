@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @rw142332
-- 👀 I’m interested in ...
+- 👀 I’m interested in SCUBA diving, hunting, and programming.
 - 🌱 I’m currently learning many different programming techniques.
 - 💞️ I’m looking to collaborate on statistics.
 - 📫 How to reach me ...
